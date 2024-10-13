@@ -1,0 +1,7 @@
+- 👋 Hi, I’m DanielCode5000
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on open-source projects
+- 📫 How to reach me: Newgrounds or Twitter, take your pick
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love eating sausage with smiley face potatoes
